@@ -31,3 +31,6 @@ CONTACT
 Name:Ashley
 Email: ashleywairimu18@gmail.com
 Github: Ashleywairimu92
+
+EXPLANATION RECORDING
+https://www.loom.com/share/c8a30e51c55044bfaf96d95a692482d8?sid=e0c821b3-cc7a-4407-a2f0-5aa8b28730a4
